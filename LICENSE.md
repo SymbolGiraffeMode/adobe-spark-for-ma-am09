@@ -1,4 +1,4 @@
-
+Adobe Spark for macOS rare Script: layer-based-editing & HDR-editing is the best Adobe Spark for macOS script, featuring layer-based-editing and HDR-editing. Powerful, efficient,
 
 
 
